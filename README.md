@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Software Development
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me via email @ modiribrodi@gmail.com
+- 📫 Reach me via email @ modiribrodi@gmail.com
 - 😄 Pronouns: N/A
 - ⚡ Fun fact: N/A
 
